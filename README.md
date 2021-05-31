@@ -1,1 +1,1 @@
-👋 Hi, I’m @gnlca
+👋 Hi, I’m @gnlca and i am farsighted (sono ipermetrope)
